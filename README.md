@@ -1,1 +1,1 @@
-# LNPay
+# Donate ❤️
